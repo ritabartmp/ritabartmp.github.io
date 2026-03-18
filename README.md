@@ -1,1 +1,0 @@
-# ritabartmp.github.io
